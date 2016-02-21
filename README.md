@@ -1,0 +1,2 @@
+# Sukses
+For Everyone
